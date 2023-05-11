@@ -1,3 +1,5 @@
+![image](https://github.com/seojeongmin7809/food-delivery-2/assets/132860972/44b53c75-69b2-4464-909f-d2a24066fcfb)
+
 ![image](https://github.com/seojeongmin7809/food-delivery-2/assets/132860972/2ddf045a-d3e5-4a8b-a5a3-134c25bdb0dd)
 
 
